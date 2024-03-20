@@ -2,9 +2,9 @@
 
 **58 second** -🌟 Exciting News! 🌟 Get your hands on exclusive Coin Master Free Spins and Coins Links for March 2024 TODAY! 💰 Simply tap on the "Collect Now" button, and voila! A pop-up menu will appear, asking if you'd like to open it in Coin Master. Don't miss out on this opportunity to boost your gameplay and unlock amazing rewards! 🔥 Hurry, collect now! 🚀
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://jimaddadel.github.io/Coin)
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://jimaddadel.github.io/Coin)
  
 🎉 Dive into the world of Coin Master with FREE Spins! 🌟 Fuel your adventure and village-building journey with these essential resources. Spin the slot machine to unlock coins for construction, upgrades, and epic attacks on rival villages! 💰
 
